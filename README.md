@@ -14,3 +14,7 @@
 #### Топ команд:
 ---
 <img width="1368" height="762" alt="image" src="https://github.com/user-attachments/assets/bf528fcc-73d9-4547-947c-ad4230fe7536" />
+
+#### Ссылка на яндекс-диск с весами:
+---
+https://drive.google.com/drive/folders/1bC6IGAgrh53XzblGJhDu6Y7aSalE7AC3
